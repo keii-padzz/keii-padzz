@@ -2,4 +2,7 @@
 
 
 call me Keii or MePad, anything works fine! ^.^
----work in progress , will edit later
+Fragile social battery , please interact with care 💬 
+
+## links
+Wip
