@@ -16,8 +16,8 @@
 
 ⌗ . please do not interact if you are a proshitter/darkshipper. I'm not comfortable with it.
 ## links
-[Atabook](https://mepadzz.atabook.org)
+[Atabook](https://mepadzz.atabook.org) <-- you should sign it brah.. sign it... **hypnotizes you
 
 [Strawpage](...) <-- this is so old , due for an update
 
-[Pronouns.cc](https://pronouns.cc/@keii.padzz)
+[Pronouns.cc](https://pronouns.cc/@keii.padzz) <-- work in prog!!!
