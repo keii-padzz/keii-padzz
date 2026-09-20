@@ -17,6 +17,8 @@
 ⌗ . you can ask 2 be friends! I don't mind !!!
 
 ⌗ . please do not interact if you are a proshitter/darkshipper. I'm not comfortable with it.
+
+⌗ . please tell me if I do something wronggg!!! 😅
 ## links
 [Atabook](https://mepadzz.atabook.org) <-- you should sign it brah.. sign it... **hypnotizes you
 
