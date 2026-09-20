@@ -21,3 +21,5 @@
 [Strawpage](...) <-- this is so old , due for an update
 
 [Pronouns.cc](https://pronouns.cc/@keii.padzz) <-- work in prog!!!
+
+### this is a work in progress , i won't finish it now becayse I'm lazeeyyy eeeooughhh
