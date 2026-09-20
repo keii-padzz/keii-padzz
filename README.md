@@ -1,10 +1,7 @@
-## ╰┈➤. hello !! ──★ ˙⚙️ ̟
+# ╰┈➤. hello !! ──★ ˙⚙️ ̟
 
-# call me Keii or MePad, anything works fine! ^.^
-⌗ . Fragile social battery , please interact with care 💬 
-⌗ . feel free to ask to be moots ! ♡
-⌗ . he , it , they prns + bot xenoprns . strictly no she/her
-⌗ . heavy mepad comfkin , toipad shipper
-⌗ . osc fan !!
+⌗ . call me Keii or MePad, anything works fine! ^.^
+
+please note that I have a fragile social battery , so please interact with care. 💬 
 ## links
 Wip
