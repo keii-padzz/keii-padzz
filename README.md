@@ -7,6 +7,8 @@
 ⌗ . please note that I have a rather fragile social battery , so please interact with care. 💬
 
 ⌗ . heavy mepad comfkin and huge toipad shipper !! I'm literally MePad's #1 dad and test tube's husband......
+
+⌗ . primarily online on ponytown and whiteboardfox !!
 ## READ BYI !
 ⌗ . if u don't like mepad then don't int !! my identity is heavily centered around this character and if you speak bad about him it feels personal to me.
 
