@@ -8,6 +8,6 @@ heavy mepad comfkin and huge toipad shipper !! I 💜 osc
 ## links
 [Atabook](https://mepadzz.atabook.org)
 
-[Strawpage](https://epicallykeiipadzz.straw.page) <-- this is so old , due for an update
+[Strawpage](...) <-- this is so old , due for an update
 
 [Pronouns.cc](https://pronouns.cc/@keii.padzz)
