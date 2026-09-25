@@ -9,6 +9,8 @@
 ⌗ . heavy mepad comfkin and huge toipad shipper !! I'm literally MePad's #1 dad and test tube's husband......
 
 ⌗ . primarily online on ponytown and whiteboardfox !!
+
+⌗ . also im a median system guhhh 👀 
 ## READ BYI !
 ⌗ . if u don't like mepad then don't int !! my identity is heavily centered around this character and if you speak bad about him it feels personal to me.
 
@@ -24,6 +26,6 @@
 
 [Strawpage](...) <-- this is so old , due for an update
 
-[Pronouns.cc](https://pronouns.cc/@keii.padzz) <-- work in prog!!!
+[Pronouns.cc](https://pronouns.cc/@keii.padzz) <-- check if you wanna see my median facets!
 
 ### this is a work in progress , i won't finish it now becayse I'm lazeeyyy eeeooughhh
