@@ -1,6 +1,7 @@
-<img width="220" height="182" alt="toipad-toilet-ii" src="https://github.com/user-attachments/assets/b876e60b-ab51-432c-b333-075073318ba8" />
-
 # ╰┈➤. hello !! ──★ ˙⚙️ ̟
+[Ａｔａｂｏｏｋ](https://mepadzz.atabook.org)  ✦  [Ｓｔｒａｗｐａｇｅ](...)  ✦  [Ｐｒｏｎｏｕｎｓ.ｃｃ](https://pronouns.cc/@keii.padzz)
+<img width="1920" height="1080" alt="Untitled143_20261009212643" src="https://github.com/user-attachments/assets/0adedfef-9306-4602-bc74-d14b99cde0ab" />
+
 
 ⌗ . call me Keii or MePad, anything works fine! ^.^
 
@@ -21,11 +22,8 @@
 ⌗ . please do not interact if you are a proshitter/darkshipper. I'm not comfortable with it.
 
 ⌗ . please tell me if I do something wronggg!!! 😅
-## links
-[Atabook](https://mepadzz.atabook.org) <-- you should sign it brah.. sign it... **hypnotizes you
 
-[Strawpage](...) <-- this is so old , due for an update
-
-[Pronouns.cc](https://pronouns.cc/@keii.padzz) <-- check if you wanna see my median facets!
 
 ### this is a work in progress , i won't finish it now becayse I'm lazeeyyy eeeooughhh
+
+<img width="220" height="182" alt="toipad-toilet-ii" src="https://github.com/user-attachments/assets/b876e60b-ab51-432c-b333-075073318ba8" />
