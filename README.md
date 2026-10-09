@@ -23,8 +23,8 @@
 ---
 ---
 
- 
-# 🔗 — LINKS
+
+# <img width="60" height="40" alt="IMG_6185" src="https://github.com/user-attachments/assets/6701ff7f-2b97-4159-b0c7-5d73fbd84b73" /> — LINKS
 
 [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) ( 𝘴𝘪𝘨𝘯 𝘮𝘦 ! )
  
@@ -37,7 +37,7 @@
 ---
 
 
-# ⓘ — BYF
+# <img width="50" height="39" alt="IMG_6182" src="https://github.com/user-attachments/assets/950742b7-3652-42ab-8b25-67cf5fd7441f" /> — BYF
 
 ➤  𝙛𝙧𝙖𝙜𝙞𝙡𝙚 𝙨𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮 ,  𝙞 𝙙𝙧𝙖𝙞𝙣 𝙚𝙖𝙨𝙞𝙡𝙮 .  𝙙𝙤𝙣 ' 𝙩 𝙩𝙖𝙠𝙚 𝙞𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩 𝙞𝙛 𝙞 𝙞𝙜𝙣𝙤𝙧𝙚 𝙮𝙤𝙪 𝙤𝙧 𝙖𝙘𝙩 𝙙𝙧𝙮𝙡𝙮 !  (""•﹏•)  
 
