@@ -19,39 +19,39 @@
 
 𝘤𝘩𝘦𝘤𝘬 𝘣𝘦𝘭𝘰𝘸 𝘧𝘰𝘳 𝘭𝘪𝘯𝘬𝘴 𝘢𝘯𝘥 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 !
 
-</div
  
----
 ---
 ---
 
-<div align="center">
  
-# LINKS
+# 🔗 — LINKS
 
 [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) ( 𝘴𝘪𝘨𝘯 𝘮𝘦 ! )
  
  [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](...) ( 𝘱𝘭𝘢𝘤𝘦𝘩𝘰𝘭𝘥𝘦𝘳 , 𝘯𝘰 𝘭𝘪𝘯𝘬 )
  
  [𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤](https://pronouns.cc/@keii.padzz) ( 𝘤𝘩𝘦𝘤𝘬 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘧 𝘮𝘺 𝘧𝘢𝘤𝘦𝘵𝘴 ! )
-</div
+
 
 ---
 ---
----
 
-<div align="center">
 
 # ⓘ — BYF
 
-➤  fragile social battery ,  i drain easily .  don ' t take it to heart if i ignore you or act dryly !  (""•﹏•)
+➤  𝙛𝙧𝙖𝙜𝙞𝙡𝙚 𝙨𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮 ,  𝙞 𝙙𝙧𝙖𝙞𝙣 𝙚𝙖𝙨𝙞𝙡𝙮 .  𝙙𝙤𝙣 ' 𝙩 𝙩𝙖𝙠𝙚 𝙞𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩 𝙞𝙛 𝙞 𝙞𝙜𝙣𝙤𝙧𝙚 𝙮𝙤𝙪 𝙤𝙧 𝙖𝙘𝙩 𝙙𝙧𝙮𝙡𝙮 !  (""•﹏•)  
 
-➤  heavy mepad comfkin ,  any insults to his character feel personal to me
+➤  𝙝𝙚𝙖𝙫𝙮 𝙢𝙚𝙥𝙖𝙙 𝙘𝙤𝙢𝙛𝙠𝙞𝙣 ,  𝙖𝙣𝙮 𝙞𝙣𝙨𝙪𝙡𝙩𝙨 𝙩𝙤 𝙝𝙞𝙨 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧 𝙛𝙚𝙚𝙡 𝙥𝙚𝙧𝙨𝙤𝙣𝙖𝙡 𝙩𝙤 𝙢𝙚  
 
-➤  basic dni
+➤ 𝙞 𝙡𝙤𝙫𝙚 𝙩𝙤𝙞𝙥𝙖𝙙 𝙖𝙣𝙙 𝙩𝙚𝙨𝙩 𝙩𝙪𝙗𝙚 !! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾
 
-</div
+➤  𝙗𝙖𝙨𝙞𝙘 𝙙𝙣𝙞 ! 🚫
+
+---
+---
  
-### wip. ♡
+### this is a wip ! ♡
 
 <img width="220" height="182" alt="toipad-toilet-ii" src="https://github.com/user-attachments/assets/b876e60b-ab51-432c-b333-075073318ba8" />
+
+</div
