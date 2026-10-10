@@ -2,7 +2,8 @@
 
 # ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
  
-<img width="1920" height="1080" alt="Untitled143_20261009212643" src="https://github.com/user-attachments/assets/0adedfef-9306-4602-bc74-d14b99cde0ab" />
+<img width="1920" height="1080" alt="IMG_6200" src="https://github.com/user-attachments/assets/59b1505b-07c5-4c08-a960-9d0674260d84" />
+
 
 ---
 ---
