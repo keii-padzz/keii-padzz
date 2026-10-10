@@ -48,8 +48,21 @@
 
 ➤  𝙗𝙖𝙨𝙞𝙘 𝙙𝙣𝙞 ! 🚫
 
+<img width="150" height="20" alt="IMG_6205" src="https://github.com/user-attachments/assets/4b5c403d-ab2d-4446-a523-8cbc3fb1cbed" />
+
+<img width="150" height="20" alt="IMG_6210" src="https://github.com/user-attachments/assets/55556228-bae4-4b92-a94d-711ddbd8b477" />
+
 ---
 ---
+
+# Random user boxes
+
+<img width="380" height="74" alt="IMG_6154" src="https://github.com/user-attachments/assets/6dd2c2d2-d642-4df7-bb54-7ac25a16d513" />
+<img width="480" height="94" alt="userbox" src="https://github.com/user-attachments/assets/b60a6667-dcad-4418-b435-3a1aad44f9d5" />
+
+
+
+
  
 ### this is a wip ! ♡
 
