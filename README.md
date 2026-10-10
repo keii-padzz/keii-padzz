@@ -29,7 +29,7 @@
 
 [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) ( 𝘴𝘪𝘨𝘯 𝘮𝘦 ! )
  
- [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](...) ( 𝘱𝘭𝘢𝘤𝘦𝘩𝘰𝘭𝘥𝘦𝘳 , 𝘯𝘰 𝘭𝘪𝘯𝘬 )
+ [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://epickeiilypadzzziez.straw.page) ( 𝘴𝘦𝘯𝘥 𝘮𝘦 𝘨𝘪𝘮𝘮𝘪𝘤𝘬𝘴 ! )
  
  [𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤](https://pronouns.cc/@keii.padzz) ( 𝘤𝘩𝘦𝘤𝘬 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘧 𝘮𝘺 𝘧𝘢𝘤𝘦𝘵𝘴 ! )
 
