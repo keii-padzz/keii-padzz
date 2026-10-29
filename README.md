@@ -2,6 +2,8 @@
 
 # ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
  
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=keii-padzz&label=mepadlings)
+
 [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) | [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://epickeiilypadzzziez.straw.page) |  [𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤](https://pronouns.cc/@keii.padzz)
 
 <img width="1500" height="500" alt="IMG_6380" src="https://github.com/user-attachments/assets/c5697672-6ca0-48cd-a04a-35975b309bcc" />
