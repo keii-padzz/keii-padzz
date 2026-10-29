@@ -2,12 +2,10 @@
 
 # ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
  
-<img width="1920" height="1080" alt="IMG_6200" src="https://github.com/user-attachments/assets/59b1505b-07c5-4c08-a960-9d0674260d84" />
+[𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) | [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://epickeiilypadzzziez.straw.page) |  [𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤](https://pronouns.cc/@keii.padzz)
 
+<img width="1500" height="500" alt="IMG_6380" src="https://github.com/user-attachments/assets/c5697672-6ca0-48cd-a04a-35975b309bcc" />
 
----
----
- 
 𐔌  .  𝘬𝘦𝘪𝘪 / 𝘮𝘦𝘱𝘢𝘥 / 𝘬𝘦𝘪𝘪𝘱𝘢𝘥𝘻 / 𝘩𝘢𝘳𝘱𝘦𝘳 
 
 𝜗𝜚  𝘱𝘢𝘯 + 𝘢𝘤𝘦 ﹠ 𝘵𝘮𝘢𝘴𝘤 + 𝘣𝘰𝘺𝘧𝘭𝘶𝘹
@@ -18,21 +16,7 @@
 
  ͜   .    [𝘮𝘦𝘥𝘪𝘢𝘯 𝘴𝘺𝘴](https://pluralpedia.org/w/Median)   ݂۫ 𓏼 ̣̣
 
-𝘤𝘩𝘦𝘤𝘬 𝘣𝘦𝘭𝘰𝘸 𝘧𝘰𝘳 𝘭𝘪𝘯𝘬𝘴 𝘢𝘯𝘥 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 !
-
- 
----
----
-
-
-# <img width="40" height="40" alt="IMG_6185" src="https://github.com/user-attachments/assets/6701ff7f-2b97-4159-b0c7-5d73fbd84b73" /> — LINKS
-
-[𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://mepadzz.atabook.org) ( 𝘴𝘪𝘨𝘯 𝘮𝘦 ! )
- 
- [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://epickeiilypadzzziez.straw.page) ( 𝘴𝘦𝘯𝘥 𝘮𝘦 𝘨𝘪𝘮𝘮𝘪𝘤𝘬𝘴 ! )
- 
- [𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤](https://pronouns.cc/@keii.padzz) ( 𝘤𝘩𝘦𝘤𝘬 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘧 𝘮𝘺 𝘧𝘢𝘤𝘦𝘵𝘴 ! )
-
+𝘤𝘩𝘦𝘤𝘬 𝘣𝘦𝘭𝘰𝘸 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 !
 
 ---
 ---
@@ -46,13 +30,44 @@
 
 ➤ 𝙞 𝙡𝙤𝙫𝙚 𝙩𝙤𝙞𝙥𝙖𝙙 𝙖𝙣𝙙 𝙩𝙚𝙨𝙩 𝙩𝙪𝙗𝙚 !! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾
 
-➤  𝙗𝙖𝙨𝙞𝙘 𝙙𝙣𝙞 ! 🚫
+➤ 𝘽𝘼𝙎𝙄𝘾 𝘿𝙉𝙄 • 𝙄 𝘽𝙇𝙊𝘾𝙆 𝙁𝙍𝙀𝙀𝙇𝙔. 🚫
 
 <img width="150" height="20" alt="IMG_6205" src="https://github.com/user-attachments/assets/4b5c403d-ab2d-4446-a523-8cbc3fb1cbed" />
 
 <img width="150" height="20" alt="IMG_6208" src="https://github.com/user-attachments/assets/830e2727-5baf-474c-ad90-b83a0b5c125d" />
 
 <img width="150" height="20" alt="IMG_6210" src="https://github.com/user-attachments/assets/55556228-bae4-4b92-a94d-711ddbd8b477" />
+
+---
+---
+
+
+# <img width="40" height="40" alt="IMG_6185" src="https://github.com/user-attachments/assets/6701ff7f-2b97-4159-b0c7-5d73fbd84b73" /> — EXTRA
+
+<details>
+
+<summary>𝘍𝘈𝘕𝘋𝘖𝘔𝘚</summary>
+
+- INANIMATE INSANITY (or just the osc in general!)
+- STEVEN UNIVERSE
+- GRAVITY FALLS
+- THE STANLEY PARABLE
+- CUCUMBER QUEST
+- TEEN TITANS/GO
+- TAWOG/TWWWOG
+- CARMEN SANDIEGO (2019)
+- and possibly more! ^_^
+
+</details>
+
+
+<details>
+
+<summary>𝘔𝘖𝘙𝘌 𝘚𝘖𝘊𝘐𝘈𝘓𝘚!</summary>
+
+[𝙏𝙒𝙄𝙏𝙏𝙀𝙍](https://x.com/EpicallyKeii) | [𝙏𝙄𝙆𝙏𝙊𝙆](https://tiktok.com/@Keii.2763) | [𝙋𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏](https://pinterest.com/EpicallyKeiiPop/)
+
+</details>
 
 ---
 ---
