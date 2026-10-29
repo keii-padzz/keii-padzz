@@ -56,16 +56,6 @@
 
 ---
 ---
-
-# <img width="40" height="40" alt="IMG_6157" src="https://github.com/user-attachments/assets/53b6feea-1637-4b1e-8110-bd2f90b1563a" /> — X - TRA !
-
-<img width="281" height="56" alt="IMG_6154" src="https://github.com/user-attachments/assets/6dd2c2d2-d642-4df7-bb54-7ac25a16d513" />
-<img width="281" height="56" alt="userbox" src="https://github.com/user-attachments/assets/b60a6667-dcad-4418-b435-3a1aad44f9d5" />
-<img width="281" height="56" alt="IMG_6211" src="https://github.com/user-attachments/assets/460995a3-9a0e-4dc6-80fa-5aaa2d3c2ffe" />
-<img width="281" height="56" alt="IMG_6212" src="https://github.com/user-attachments/assets/3855376a-0c48-4f72-8673-2cc92118b1da" />
-
----
----
  
 ### this is a wip ! ♡
 
