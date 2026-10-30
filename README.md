@@ -26,7 +26,7 @@
 
 # <img width="40" height="40" alt="IMG_6182" src="https://github.com/user-attachments/assets/950742b7-3652-42ab-8b25-67cf5fd7441f" /> — BYF
 
-➤  𝙛𝙧𝙖𝙜𝙞𝙡𝙚 𝙨𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮 ,  𝙞 𝙙𝙧𝙖𝙞𝙣 𝙚𝙖𝙨𝙞𝙡𝙮 .  𝙙𝙤𝙣 ' 𝙩 𝙩𝙖𝙠𝙚 𝙞𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩 𝙞𝙛 𝙞 𝙞𝙜𝙣𝙤𝙧𝙚 𝙮𝙤𝙪 𝙤𝙧 𝙖𝙘𝙩 𝙙𝙧𝙮𝙡𝙮 !  (""•﹏•)  
+➤  𝙛𝙧𝙖𝙜𝙞𝙡𝙚 𝙨𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮 ,  𝙞 𝙙𝙧𝙖𝙞𝙣 𝙚𝙖𝙨𝙞𝙡𝙮 .  𝙙𝙤𝙣 ' 𝙩 𝙩𝙖𝙠𝙚 𝙞𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩 𝙞𝙛 𝙞 𝙞𝙜𝙣𝙤𝙧𝙚 𝙮𝙤𝙪 𝙤𝙧 𝙖𝙘𝙩 𝙙𝙧𝙮𝙡𝙮 ! ("•﹏•)  
 
 ➤  𝙝𝙚𝙖𝙫𝙮 𝙢𝙚𝙥𝙖𝙙 𝙘𝙤𝙢𝙛𝙠𝙞𝙣 ,  𝙖𝙣𝙮 𝙞𝙣𝙨𝙪𝙡𝙩𝙨 𝙩𝙤 𝙝𝙞𝙨 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧 𝙛𝙚𝙚𝙡 𝙥𝙚𝙧𝙨𝙤𝙣𝙖𝙡 𝙩𝙤 𝙢𝙚  
 
@@ -45,6 +45,26 @@
 
 
 # <img width="40" height="40" alt="IMG_6185" src="https://github.com/user-attachments/assets/6701ff7f-2b97-4159-b0c7-5d73fbd84b73" /> — EXTRA
+
+<details>
+
+ <summary>𝙋𝙊𝙉𝙔 𝙏𝙊𝙒𝙉 𝙄𝙉𝙁𝙊</summary>
+ 
+ ### 𝙎𝙏𝘼𝙏𝙐𝙎𝙀𝙎
+- 🟢 ONLINE — I am fully active and roaming around or at a party.
+- 🌙 AWAY — I have gone AFK for a bit, likely offtab or doing a chore.
+- ⛔️ BUSY — I am completely offtab or away for a long time, no responses.
+- 💬 LOOKING FOR CHAT — On rare occasions, I feel very sociable and I am available to talk, whether you are my friend or not! (we can still talk if we are friends!)
+
+there's no Looking For Roleplay because I never use that. I don't roleplay. kthxbai
+ 
+---
+
+### 𝙂𝙀𝙉𝙀𝙍𝘼𝙇
+- C+H is allowed, but not encouraged! Sorry, I feel kind of awkward, but I swear it's okay! ^^ (you will have to ask if I am Online though! do it whenever you want if I am Busy.)
+- I type slowly, plz give me time! it's either my keyboard is bugging or I'm trying to word my sentence right.
+- i think that's about it for neoww 
+</details>
 
 <details>
 
