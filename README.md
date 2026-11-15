@@ -8,17 +8,17 @@
 
 <img width="1500" height="500" alt="IMG_6380" src="https://github.com/user-attachments/assets/c5697672-6ca0-48cd-a04a-35975b309bcc" />
 
-𐔌  .  𝘬𝘦𝘪𝘪 / 𝘮𝘦𝘱𝘢𝘥 / 𝘬𝘦𝘪𝘪𝘱𝘢𝘥𝘻 / 𝘩𝘢𝘳𝘱𝘦𝘳 
+*𐔌  .  keii / mepad / keiipadz / harper* 
 
-𝜗𝜚  𝘱𝘢𝘯 + 𝘢𝘤𝘦 ﹠ 𝘵𝘮𝘢𝘴𝘤 + 𝘣𝘰𝘺𝘧𝘭𝘶𝘹
+*𝜗𝜚  pan + ace ﹠ tmasc + boyflux*
 
-.　𝘩𝘦　᎖　𝘵𝘩𝘦𝘺 ᎖ 𝘪𝘵 ⌓⌓
+*.　he　᎖　they ᎖ it ⌓⌓*
 
-ᛝ       ︰      𝘪𝘸𝘤 / 𝘪𝘯𝘵        ⏖
+*ᛝ       ︰      iwc / int        ⏖*
 
- ͜   .    [𝘮𝘦𝘥𝘪𝘢𝘯 𝘴𝘺𝘴](https://pluralpedia.org/w/Median)   ݂۫ 𓏼 ̣̣
+ ͜   .    [median sys](https://pluralpedia.org/w/Median)   ݂۫ 𓏼 ̣̣
 
-𝘤𝘩𝘦𝘤𝘬 𝘣𝘦𝘭𝘰𝘸 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 !
+*check below for more info !*
 
 ---
 ---
@@ -26,15 +26,17 @@
 
 # <img width="40" height="40" alt="IMG_6182" src="https://github.com/user-attachments/assets/950742b7-3652-42ab-8b25-67cf5fd7441f" /> — BYF
 
-➤  𝙛𝙧𝙖𝙜𝙞𝙡𝙚 𝙨𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮 ,  𝙞 𝙙𝙧𝙖𝙞𝙣 𝙚𝙖𝙨𝙞𝙡𝙮 .  𝙙𝙤𝙣 ' 𝙩 𝙩𝙖𝙠𝙚 𝙞𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩 𝙞𝙛 𝙞 𝙞𝙜𝙣𝙤𝙧𝙚 𝙮𝙤𝙪 𝙤𝙧 𝙖𝙘𝙩 𝙙𝙧𝙮𝙡𝙮 ! ("•﹏•)  
+➤  ***I have a rather fragile social battery. please don't take it to heart if I ignore you or act dryly!! ("•﹏•)***
 
-➤  𝙝𝙚𝙖𝙫𝙮 𝙢𝙚𝙥𝙖𝙙 𝙘𝙤𝙢𝙛𝙠𝙞𝙣 ,  𝙖𝙣𝙮 𝙞𝙣𝙨𝙪𝙡𝙩𝙨 𝙩𝙤 𝙝𝙞𝙨 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧 𝙛𝙚𝙚𝙡 𝙥𝙚𝙧𝙨𝙤𝙣𝙖𝙡 𝙩𝙤 𝙢𝙚  
+➤  ***I cuss a lot and sometimes make suggestive/dirty jokes. please tell me if this makes you uncomfortable and I will try my best to avoid doing so when interacting with you. ^^***
 
-➤  𝙄 𝙤𝙛𝙩𝙚𝙣 𝙙𝙤𝙣'𝙩 𝙨𝙥𝙚𝙖𝙠 𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙥𝙤𝙠𝙚𝙣 𝙩𝙤 (𝙚𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙡𝙮 𝙬𝙞𝙩𝙝 𝙛𝙧𝙞𝙚𝙣𝙙𝙨..!), 𝙨𝙤 𝙘𝙝𝙖𝙩 𝙢𝙚 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙞𝙛 𝙄'𝙢 𝙖𝙫𝙖𝙞𝙡𝙖𝙗𝙡𝙚! 𝙈𝙮 𝙨𝙩𝙖𝙩𝙪𝙨 𝙞𝙨 𝙪𝙨𝙪𝙖𝙡𝙡𝙮 𝙞𝙣 𝙢𝙮 𝙨𝙠𝙞𝙣'𝙨 𝙣𝙖𝙢𝙚.
+➤  ***I am a heavy mepad comfkin. any insults to his character feel truly personal to me.***
 
-➤  𝙞 𝙡𝙤𝙫𝙚 𝙩𝙤𝙞𝙥𝙖𝙙 𝙖𝙣𝙙 𝙩𝙚𝙨𝙩 𝙩𝙪𝙗𝙚 !! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾
+➤  ***I often don't speak/socialize unless spoken to, especially with friends. if you're in my friend list, please feel free to chat/whisper if I'm available! (usually not if offtab)***
 
-➤  𝘽𝘼𝙎𝙄𝘾 𝘿𝙉𝙄 • 𝙄 𝘽𝙇𝙊𝘾𝙆 𝙁𝙍𝙀𝙀𝙇𝙔. 🚫
+➤  ***i have a huuuuge mepad and toipad obsession and I like test tube too !!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾***
+
+➤  ***BASIC DNI, I BLOCK FREELY. 🚫***
 
 <img width="150" height="20" alt="IMG_6205" src="https://github.com/user-attachments/assets/4b5c403d-ab2d-4446-a523-8cbc3fb1cbed" />
 
@@ -50,9 +52,9 @@
 
 <details>
 
- <summary>𝙋𝙊𝙉𝙔 𝙏𝙊𝙒𝙉 𝙄𝙉𝙁𝙊</summary>
+ <summary> PONY TOWN INFO </summary>
  
- ### 𝙎𝙏𝘼𝙏𝙐𝙎𝙀𝙎
+ ### ***STATUSES***
 - 🟢 ONLINE — I am fully active and roaming around or at a party.
 - 🌙 AWAY — I have gone AFK for a bit, likely offtab or doing a chore.
 - ⛔️ BUSY — I am completely offtab or away for a long time, no responses.
@@ -62,7 +64,7 @@ there's no Looking For Roleplay because I never use that. I don't roleplay. kthx
  
 ---
 
-### 𝙂𝙀𝙉𝙀𝙍𝘼𝙇
+### ***GENERAL***
 - C+H is allowed, but not encouraged! Sorry, I feel kind of awkward, but I swear it's okay! ^^ (you will have to ask if I am Online though! do it whenever you want if I am Busy.)
 - I type slowly, plz give me time! it's either my keyboard is bugging or I'm trying to word my sentence right.
 - i think that's about it for neoww 
@@ -70,7 +72,7 @@ there's no Looking For Roleplay because I never use that. I don't roleplay. kthx
 
 <details>
 
-<summary>𝘍𝘈𝘕𝘋𝘖𝘔𝘚</summary>
+<summary>FANDOMS</summary>
 
 - INANIMATE INSANITY (or just the osc in general!)
 - STEVEN UNIVERSE
@@ -87,7 +89,7 @@ there's no Looking For Roleplay because I never use that. I don't roleplay. kthx
 
 <details>
 
-<summary>𝘔𝘖𝘙𝘌 𝘚𝘖𝘊𝘐𝘈𝘓𝘚!</summary>
+<summary>MORE SOCIALS!</summary>
 
 [𝙏𝙒𝙄𝙏𝙏𝙀𝙍](https://x.com/EpicallyKeii) | [𝙏𝙄𝙆𝙏𝙊𝙆](https://tiktok.com/@Keii.2763) | [𝙋𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏](https://pinterest.com/EpicallyKeiiPop/) | [𝙒𝙃𝙄𝙏𝙀𝘽𝙊𝘼𝙍𝘿𝙁𝙊𝙓](https://r9.whiteboardfox.com/gallery/@Spookily_Keii)
 
