@@ -36,6 +36,8 @@
 
 ➤  ***i have a huuuuge mepad and toipad obsession and I like test tube too !!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾***
 
+➤  ***I am ANTI GenAI / AI "art". Do not assume I encourage such things just because I identify as a robot.***
+
 ➤  ***BASIC DNI, I BLOCK FREELY. 🚫***
 
 <img width="150" height="20" alt="IMG_6205" src="https://github.com/user-attachments/assets/4b5c403d-ab2d-4446-a523-8cbc3fb1cbed" />
